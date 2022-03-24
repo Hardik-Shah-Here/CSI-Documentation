@@ -7,7 +7,7 @@ The Documents provided here are only for viewing purposes to get a glimpse of ev
 **I have officially worked 2 complete years with the Forum CSI VIIT**
 * 1 year as Joint Treasurer (Academic Yr 2020-2021)
 * 1 year as President (Academic Yr 2021-2022)
-* Have worked for an event as a volunteer as well in (Academic Yr 2019-2020)
+* Have worked for an event(Sherlock's Adventure) as a volunteer as well in (Academic Yr 2019-2020)
 
 
 **4 Major Events mentioned here are:**
